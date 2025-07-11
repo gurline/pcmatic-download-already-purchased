@@ -1,3 +1,8 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://i-downloadsoftwares.com/">
+
+
 How to Download PC Matic Already Purchased
 ==========================================
 
